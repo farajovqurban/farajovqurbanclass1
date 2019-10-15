@@ -1,1 +1,1 @@
-# farajovqurbanclass1
+# qurbanclass1
